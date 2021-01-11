@@ -6,4 +6,4 @@ Do you type so fast that your computer goes to sleep productivity up on windows 
  Undercommit, orders delivered, always.
  
  
-The productivity enhancer 50000 gets stoned with two birds. Learned powershell and productivity good.
+The productivity enhancer 50000 gets stoned with two birds. Learned stuff and did good.
